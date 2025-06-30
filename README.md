@@ -27,6 +27,7 @@ Like— (Grrah), like, yes, I'm a ten in the face
 I got that shit that you cannot replace
 
 u think u the shit bitch??!! u not even the fart 
+
 racists homophobes etc. interact so i can hide u thanks
 
 <!--
